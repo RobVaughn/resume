@@ -1,3 +1,3 @@
 ### Rob Vaughn Resume
 
-Rob Vaughn Online Resume. General experience, please contact me if you'd like the long, complete version.
+Rob Vaughn Online Resume with general experience. Please see the full version for an exhaustive list of my background.
